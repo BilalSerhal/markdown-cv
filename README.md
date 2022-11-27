@@ -22,3 +22,9 @@ paced setting
 - Great management skills
 - Ability to work under pressure
 
+## Core Strengths
+- Microsoft software
+- Social  Networking
+- Public Relations
+- Good interpersonal skills.
+
